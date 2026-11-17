@@ -27,3 +27,4 @@ tableaux de bord Power BI qui aident les équipes métier à décider, notamment
 ### 📫 Me contacter
 
 - LinkedIn : [linkedin.com/in/papa-issa-top-20965918b](https://www.linkedin.com/in/papa-issa-top-20965918b)
+- E-mail : [papaissatop80@yahoo.fr](mailto:papaissatop80@yahoo.fr)
